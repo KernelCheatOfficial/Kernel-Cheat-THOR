@@ -1,2 +1,5 @@
-# Kernel-Cheat-THOR
-𝖮𝖿𝖿𝗂𝖼𝗂𝖺𝗅 𝖶𝖾𝖻𝗌𝗂𝗍𝖾: https://KernelCheatOfficial.com Customer Support: @Thorcheat_bot  Business inquiries: contact@kernelcheatofficial.com  Installation guide: @ThorCheat_tg Group to discuss: @ThorCheatChat  Live reviews &amp; user logs: @NGX_LTX
+THOR Kernel works on all Android devices (Root & Non-Root). ثور كيرنل يشتغل على كل أجهزة الأندرويد (بجذر وبدون جذر) 
+Root Reviews: t.me/KernelCheatsLive 
+Non-Root Reviews: t.me/NonRootAndroid 
+Website: kernelcheatofficial.com 
+Purchase / Support: t.me/ThorCheat_Bot
